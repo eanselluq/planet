@@ -1,5 +1,5 @@
 ## Collaborators
 
-Me
-The lovely Evelyn
+- Me
+- The lovely Evelyn
 
